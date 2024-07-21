@@ -1,6 +1,6 @@
 # My Resume
 
-![image](https://github.com/user-attachments/assets/81a1838f-65cb-45ed-9979-dc13cf6361b3)
+![Resume_Kanchanaphum_Khammanee](https://github.com/user-attachments/assets/b53450c6-e7d3-486d-9cbb-8c2de7e78ff9)
 
-https://drive.google.com/drive/u/0/folders/1wRdXIb37s4vUJn3Q1WznXlBq2w4VpJjQ
+https://drive.google.com/file/d/1z-5NkCaol_dMTfACi0J6Wtc804gPxlY3/view?usp=sharing
 
