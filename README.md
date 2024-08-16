@@ -1,8 +1,8 @@
 # My Resume
 
-![Resume_Kanchanaphum_Khammanee](https://github.com/user-attachments/assets/b53450c6-e7d3-486d-9cbb-8c2de7e78ff9)
+![Resume_Kanchanaphum_Khammanee](https://github.com/user-attachments/assets/fe4c03ef-eee4-496f-a34e-107141298955)
 
 ## My Resume( Attached hyperlinks ) :
 
-https://drive.google.com/file/d/1z-5NkCaol_dMTfACi0J6Wtc804gPxlY3/view?usp=sharing
+https://drive.google.com/file/d/1mWVlwPnhZ_emvRXOabm18g6mBvx_C-Iy/view?usp=sharing
 
